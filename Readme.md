@@ -1,0 +1,1 @@
+karepmu arep ngopo cok 
